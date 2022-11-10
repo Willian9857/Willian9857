@@ -5,7 +5,7 @@
 **happy to learn**
 <br/>
 <br/>
-**O que valoriza o seu trabalho é a sua dedicação para realizá-lo 🏆** 
+**What values ​​your work is your dedication to carry it out 🏆** 
 
 
 <h2>💻 Some stats 💻</h2>
